@@ -2,9 +2,9 @@
 - 👀 I’m interested in Genshin Impact
 - 🌱 I’m currently learning Genshin Impact
 - 💞️ I’m looking to collaborate on Genshin Impact
-- 📫 How to reach me Genshin Impact
+- 📫 How to reach me @fls_fumi
 - 😄 Pronouns: Genshin Impact
-- ⚡ Fun fact: Genshin Impact
+- ⚡ Fun fact: I love Hutao
 
 <!---
 FLSfumi/FLSfumi is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
